@@ -1,1 +1,1 @@
-# Help Under Priviled Youth
+# Help Under Privileged Youth
